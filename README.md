@@ -1,2 +1,0 @@
-# Janno-tech-
-Personal website 
